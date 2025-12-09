@@ -1,0 +1,1 @@
+this is just supposed too be a reop called plaing wieh scritps where i'll doucument what i have learned 
