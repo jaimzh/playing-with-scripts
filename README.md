@@ -1,1 +1,1 @@
-this is just supposed too be a reop called plaing wieh scritps where i'll doucument what i have learned 
+this is just supposed too be a repo called playing with scritps where i'll document what i have learned 
